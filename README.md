@@ -1,0 +1,1 @@
+# Segmenta-o-de-mercado-e-hiper-personaliza-o-k-mens-
